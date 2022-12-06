@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chr1st0ph3rGG
+- 👋 Hi, I’m @chr1st0ph3rGG (Yes I like 1337 speake :D)
 - 👀 I’m interested in game development and ai stuff
 
 <!---
